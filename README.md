@@ -1,1 +1,1 @@
-**Ég heiti Sigga Regína. Mig langar lí kókómjólk.**
+**Ég heiti Sigga Regína. Þetta er svæði til að prufa hluti.**
